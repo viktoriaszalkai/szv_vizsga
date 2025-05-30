@@ -1,0 +1,1 @@
+# szv_vizsga
